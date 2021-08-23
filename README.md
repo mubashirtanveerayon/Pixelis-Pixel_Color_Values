@@ -1,2 +1,2 @@
 # Pixelis-Pixel_Color_Values
-![Preview](https://th.bing.com/th/id/OIP.bd_ExEANFobN15hwEi9lFQHaE8?w=260&h=180&c=7&o=5&pid=1.7)
+![Preview](https://i.ibb.co/ds9Tffj/Screenshot-2021-08-23-091738.png)
